@@ -1,2 +1,2 @@
 # wangchobo-typing-privacy
-왕초보 타자교실 개인정보처리방침
+또박또박 한글 타자 개인정보처리방침
